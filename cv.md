@@ -12,3 +12,4 @@
 #### Язяки:
 Английский язык уровня A2.
 
+<img width="150" height="200" alt="0_04" src="https://github.com/user-attachments/assets/1207b0b1-5137-4b75-8967-759d65265949" />
