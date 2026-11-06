@@ -1,2 +1,2 @@
 
-https://taisiya01.github.io/amcp-cv /
+https://taisiya01.github.io/amcp-cv/cv
